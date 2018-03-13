@@ -1,2 +1,2 @@
 # Hello-World
-Time Honored Tradition
+Time-honored Tradition
